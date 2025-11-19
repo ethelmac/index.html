@@ -1,1 +1,0 @@
-![alt text](c:\Users\TriThel Mae\OneDrive\Pictures\chaang meng\1748856872591.jpg)
